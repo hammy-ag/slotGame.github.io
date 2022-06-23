@@ -1,0 +1,1 @@
+# slotGame.github.io
